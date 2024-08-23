@@ -1,1 +1,1 @@
-# Renato
+# Renato sou renato e estudo no colegio estadual josé armin matte, paraná gosto de programação e gosto mmuito de esportes, minha profissão dos sonhos e ser engenhiro de computação, pretendo faer isso mas, se não der certo irei faer administração.
